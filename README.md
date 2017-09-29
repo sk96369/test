@@ -1,1 +1,1 @@
-# gamez
+# abcdefghijklmnopqrtsuvwxyzåäö
